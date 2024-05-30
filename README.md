@@ -1,1 +1,1 @@
-👋 Hi, I’m @blankinator (Alex).
+👋 Hi, I’m Alex (@blankinator) (he/him).
